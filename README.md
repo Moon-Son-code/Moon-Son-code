@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Moon-Son-code
-- 👀 I’m interested in ...musoc production,fimling,video and photography  
+- 👀 I’m interested in ...music production,fimling,video and photography  
 - 🌱 I’m currently learning ...how to code
 - 📫 How to reach me ...insta @ moonson_sa
 
